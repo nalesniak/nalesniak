@@ -7,4 +7,4 @@
 ##### **_You thought the link would work?_** 
 ##### How dare you try to buy apple juice?! 
 ##### **_Disgrace_**
-![alt text](https://salimaskitchen.com/wp-content/uploads/2022/01/Fresh-Squeezed-Orange-Juice-Salimas-Kitchen-20.jpg)
+![alt text](https://healthmylifestyle.com/wp-content/uploads/2023/01/Fresh-squeezed-orange-juice-featured-500x375.jpg)
